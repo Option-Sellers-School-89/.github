@@ -51,7 +51,7 @@ No monthly tiers, no trial periods publicly available. Just one annual investmen
 
 ---
 
-[Join Option Sellers School Now to Master the Quad Strategy](https://kelexbawz.com/option-sellers-school)
+[Join Option Sellers School Now to Master the Quad Strategy](https://whop.com/option-sellers-school?a=kelechienwere1234)
 
 ---
 
@@ -101,7 +101,7 @@ A dash of fun—spin for small rewards. It’s not necessary, but definitely add
 
 ---
 
-[Join Option Sellers School Now to Start Earning Consistent Premiums](https://kelexbawz.com/option-sellers-school)
+[Join Option Sellers School Now to Start Earning Consistent Premiums](https://whop.com/option-sellers-school?a=kelechienwere1234)
 
 ---
 
@@ -141,7 +141,7 @@ His teaching is direct, no-nonsense, and builds on practical, everyday investor 
 
 ---
 
-[Join Option Sellers School Now for Structured Mentorship & Real Income Potential](https://kelexbawz.com/option-sellers-school)
+[Join Option Sellers School Now for Structured Mentorship & Real Income Potential](https://whop.com/option-sellers-school?a=kelechienwere1234)
 
 ---
 
@@ -200,6 +200,6 @@ After a deep dive, **Option Sellers School** stands out as a high-impact, mentor
 
 ---
 
-[Join Option Sellers School Now and Start Selling Options with Confidence](https://kelexbawz.com/option-sellers-school)
+[Join Option Sellers School Now and Start Selling Options with Confidence](https://whop.com/option-sellers-school?a=kelechienwere1234)
 
 ---
